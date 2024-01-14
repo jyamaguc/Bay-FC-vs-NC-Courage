@@ -1,2 +1,2 @@
 # Bay-FC-vs-NC-Courage
-A case study of a hypothetical match between Bay FC vs North Carolina Courage.
+A case study of a hypothetical match between Bay FC vs North Carolina Courage back in 2018.
